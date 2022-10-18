@@ -1,4 +1,4 @@
-# Hey 👋, I'm [NFS86](https://t.me/Bella_Aprilia_27)!
+# Hey 👋, I'm [DRX212](https://t.me/erorcod)!
 
 - <img src="https://raw.githubusercontent.com/mpurnomoadji/GameTebakAku-master/master/website/img/animasi-bergerak-bendera-indonesia-0013.gif" width="5dp"> I'm from Indonesia
 - 🎓 I’m a college student 
